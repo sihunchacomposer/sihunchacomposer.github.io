@@ -3,7 +3,7 @@
 ---
 
 # Sihun Cha
-Composer & Arranger
+Composer
 
 ---
 
